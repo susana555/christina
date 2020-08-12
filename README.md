@@ -1,0 +1,2 @@
+# christina
+I do not sell these dogs. They are like my own children that you love so much. We cannot sell our own children. I will be happy if I find a loving home to adopt any of them. All are freely adopted. All you will spend is paying the shipping costs and the adoption documents. This is only a small amount of money to be paid to the delivery company, but I will bring the dog directly to your home.
